@@ -5,3 +5,4 @@ Rips chuhka
 * Toyota bogo podobnia
 * Lada
 * lada 2106
+On sosal ego ebali
